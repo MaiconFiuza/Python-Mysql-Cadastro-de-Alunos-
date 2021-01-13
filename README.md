@@ -15,5 +15,3 @@ Maicon Barbosa Fiuza
 
 Linked: https://www.linkedin.com/in/maicon-barbosa-fiuza-4157ab1a3/
 
-Baseado nos videos do Canal Tutus Funny:
-https://www.youtube.com/channel/UCA1UW__WEiBd1bmzyKlBUyw
